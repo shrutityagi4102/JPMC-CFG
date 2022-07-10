@@ -2,6 +2,8 @@
 
 ![](public/assets/img/logo.png)
 
+Our presentation : https://drive.google.com/file/d/1sSBhoP5ENL2zOzqraMC7-yEA4HB3sBrQ/view?usp=sharing
+
 ## ORGANISATION : St Jude India ChildCare Centres
 
 ### Members:
